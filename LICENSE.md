@@ -1,4 +1,4 @@
-
+Enhance Canva for macOS with elite Script for Canva for macOS - shortcut customization and perspective warp, the #1 script. Includes shortcut customization and perspective warp
 
 
 
